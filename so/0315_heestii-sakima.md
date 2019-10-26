@@ -28,7 +28,7 @@ Sakima wuxuu jeclaa in uu u heeso walaashiisa yar, gaar ahaan, haddii ay dareent
 Hal fiid markii ay waalidkiis guriga ku soo laabteen, ayay aad u aamusnaayeen. Sakima wuxuu ogaa in ay wax qaldan jiraan.
 
 ##
-Maxaa qaldan hooyo, aabe? "Sakima ayaa waydiiyay. Sakima wuxuu ogaaday in wiilka ninkii hodanka ahaa uu maqan yahay, ninku wuxuu ahaa mid aad u murugooday oo cidloobay.
+"Maxaa qaldan hooyo, aabe? "Sakima ayaa waydiiyay. Sakima wuxuu ogaaday in wiilka ninkii hodanka ahaa uu maqan yahay, ninku wuxuu ahaa mid aad u murugooday oo cidloobay.
 
 ##
 "Waan u heesi karaa isaga. Waxaa laga yaabaa in uu markale farxo," Sakima ayaa waalikiisa u sheegay. Laakiin waalidiintiisii waa ay eryeen. "Waa nin aad taajir u ah, waxaad tahay wiil indho la. Ma waxaad u maleyneysaa in ay heestaada caawin doonto?"
