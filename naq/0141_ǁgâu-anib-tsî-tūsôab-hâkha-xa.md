@@ -10,7 +10,7 @@ O kha ge ǂgāb ǁga dāǁnâ tsî ge ǃâigu tsoatsoa. ǁGâu-anib ge ǃhae i, 
 Nē soab ai kha ge go mîǀgui ǃhub ai ǂnûi, tsî ra ǀguiǀguibese ǂnāhe bols ǀkha kha nî ǃâiguse. Aipeb ge Tūsôaba ǂguro ge ǃkhō-ao i, ǁnās khaoǃgâb ge ǁGâu-aniba ge ǃēsa hō, mâǃoas disa.
 
 ##
-Nē soab ai kha ge go mîǀgui ǃhubai ǂnûi tsî ra ǀguiǀguibese ǂnāhe bols ǀkha kha nî ǃâiguse. Aipeb ge Tūsôaba ge ǂguro ǃkhō-ao i, ǁnās khaoǃgâb ge ǁGâu-aniba ge ǃēsa hō, mâǃoas disa.
+Tusôab ge bolsa ǂnā tsî ǁnātimîsi ge ǂnāǂgā. Tusôab ge, kara-ga-kara bi tsî ge ǂnāǂgā. Tusôab ge bolsa danas ai ǂnûi, tsî ǁkhawa ge ǂnāǂgā. Tusôab ge koro bolde ge ǂnāǂgā.
 
 ##
 ǁGâu-anib ge ǁnātikōse ǁaixa tsî ge ǂnubi-am ǂoaǃnâb ge ǃkhais ǃaroma. ǁÎb ge amase kaise ǂkhawusa ǂoaǃnâ-ao ge iba. Ob ge Tūsôaba ge âiǂuibi, gawaxaseb gere ǁîba ǁgowo xui-ao.
